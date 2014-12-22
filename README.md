@@ -35,9 +35,11 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A dialogue concerning witches and witchcraftes In which is laide open how craftely the Diuell deceiu
+
+1. AA
+
 #####Body#####
-A dialogue concerning witches and witchcraftes In which is laide open how craftely the Diuell deceiu
+THE SPEAKERS.Samuell. Daniell. The wife of Samuell. M. B. Schoolemaister. The good wife R.Sam.YOu ar
 **Types of content**
 
   * There are 454 **drama** parts! This is **prose drama**.
